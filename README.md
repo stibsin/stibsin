@@ -7,4 +7,4 @@
   </a>
 
 
-ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ     ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ     ㅤㅤㅤ         [𝚊𝚝𝚊𝚋𝚘𝚘𝚔](https://stibsin.atabook.org) ㅤㅤㅤ  [𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎](https://arcahv.straw.page)
+ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ     ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ     ㅤㅤ      [𝚊𝚝𝚊𝚋𝚘𝚘𝚔](https://stibsin.atabook.org) ㅤㅤㅤ  [𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎](https://arcahv.straw.page)
