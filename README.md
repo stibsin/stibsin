@@ -1,5 +1,5 @@
-<p align="center">
-<img width="448" height="422" alt="sin" src="https://github.com/user-attachments/assets/6e5752ca-1d78-41d7-a011-4292358fbb86" />
+
+ㅤㅤㅤㅤ    ㅤㅤㅤ   ㅤ    ㅤ ㅤ    ㅤ    ㅤㅤ    ㅤㅤ    ㅤㅤ        <img width="448" height="422" alt="sin" src="https://github.com/user-attachments/assets/6e5752ca-1d78-41d7-a011-4292358fbb86" />
 
 <p align="center">
  ㅤㅤㅤ <a href="https://github.com/kittinan/spotify-github-profile">
